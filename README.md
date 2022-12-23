@@ -47,3 +47,5 @@ What you get by achieving your goals is not as important as what you become by a
 
 "Não sei falar inglês AINDA, então fico aqui com meu oxente." (Algum Nordestino)
 
+
+Não devemos permitir que alguém saia da nossa presença sem se sentir melhor e mais feliz. Madre Teresa de Calcutá
